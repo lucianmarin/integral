@@ -1,4 +1,4 @@
-# Tabula Integra or Intact Theory
+# Tabula Integra or Intact Mind Theory
 
 *A theory of mind holding that cognitive superiority is not a function of intelligence or knowledge, but of the mind's capacity to remain uncorrupted by its environment — and, when the evidence demands it, to unlearn everything it has built and reconstruct it on more solid principles.*
 
